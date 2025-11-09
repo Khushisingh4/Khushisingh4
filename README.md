@@ -7,7 +7,7 @@
 
 - 📝 I regularly write articles on [https://medium.com/@khushisingh1cse](https://medium.com/@khushisingh1cse)
 
-- 📫 How to reach me **khushisingh1cse@gmail.com**
+- 📫 Reach me at **khushisingh1cse@gmail.com**
 
 - 📄 Know about my experiences [https://app.luminpdf.com/viewer/690f76b592ac3bac8f0b7c53](https://app.luminpdf.com/viewer/690f76b592ac3bac8f0b7c53)
 
